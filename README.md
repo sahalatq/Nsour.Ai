@@ -1,0 +1,2 @@
+# Nsour.Ai
+privecyPolicy
